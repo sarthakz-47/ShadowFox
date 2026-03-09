@@ -114,8 +114,8 @@ As part of the internship requirements:
 
 If you'd like to collaborate or discuss web development:
 
-* LinkedIn
-* GitHub
+* [LinkedIn](https://linkedin.com/in/sarthakzz)
+* [Email Me](mailto:sarthakz.4100@gmail.com)
 
 ---
 
